@@ -1,2 +1,2 @@
 # Apartados
-Estos Apartados Oficiales constituirán junto a los Estatutos el denominado Cuerpo de Estatutos,
+Estos Apartados Oficiales constituirán junto a los Estatutos el denominado Cuerpo de Estatutos.
